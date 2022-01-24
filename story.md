@@ -1,1 +1,2 @@
-This is the story of Sam and Harry who were freinds.
+This is the story of Sam and Harry who were friends.
+They met in school and then became best friends.
