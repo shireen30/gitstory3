@@ -1,0 +1,1 @@
+This is the story of Sam and Harry who were freinds.
